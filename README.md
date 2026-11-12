@@ -1,2 +1,0 @@
-# Bosts
-WhatsApp discord ect
